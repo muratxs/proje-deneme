@@ -1,3 +1,3 @@
 bu benim masterda ilk commititm.
 
-bu muratın eklemesidir.!!!
+bu muratın222 eklemesidir.!!!
