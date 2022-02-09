@@ -1,3 +1,3 @@
 bu benim masterda ilk commititm.
 
-denizin eklemmesi.
+bu muratın222 eklemesidir.!!!
